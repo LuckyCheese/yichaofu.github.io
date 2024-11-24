@@ -1,1 +1,1 @@
-# Homepage of Yichao Fu
+# Home page of Yichao Fu
